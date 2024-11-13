@@ -2,13 +2,13 @@
 
 Coin Master is one of the most addictive and exciting mobile games that has taken the gaming world by storm. With its unique blend of slot machine mechanics, village building, and PvP action, players can find themselves spending hours trying to collect coins, attack rival villages, and raid others for loot. One of the most critical aspects of playing Coin Master is ensuring you have enough spins and coins to keep progressing through the game.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 In this guide, we will show you how to maximize your Coin Master spins using a **free 5000 spin link**, allowing you to accelerate your progress and unlock rewards more quickly. Not only will this article provide you with tips on how to utilize these free spins, but it will also show you the importance of using them strategically to get the most out of the game.
 
 ### Claim Your Free 5000 Spins Now!
 
 Before we dive into the tips, make sure to **claim your free 5000 spins** by clicking the link below:
-
-**[Claim Your Free 5000 Spins Here!]**
 
 Once you've clicked the link and secured your spins, it's time to maximize their potential! Let's explore some strategies that will help you make the most of every spin you earn.
 
